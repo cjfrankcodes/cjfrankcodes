@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cjfrankcodes but you can call me CJ :smile:
-- 👀 I’m interested in coding, video games, and sports
+- 👀 My hobbies include photography, video games, and sports
 - 🌱 I’m currently learning HTML and CSS
 - 💞️ I’m looking to collaborate on any projects suited for beginners
 - 📫 You can reach me at cjfrankcodes@gmail.com or @CJFrankCodes on twitter
